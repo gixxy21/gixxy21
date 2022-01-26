@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gixxy21
+- 👀 I’m interested in crypto, NFTs, Web 3.0, p2e Games, Anime
+- 🌱 I’m currently learning smart contracts, Web 3.0
+- 💞️ I’m looking to collaborate on NFT projects
+- 📫 How to reach me ... gitulino@gmail.com
